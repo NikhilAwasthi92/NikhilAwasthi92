@@ -1,0 +1,14 @@
+- 👋 Hi, My Self @NikhilAwasthi92
+- 👀 I’m interested in Startups, Gaming and coding Dha!!! 
+- 🌱 I’m currently learning JAVA
+- 💞️ I’m looking to collaborate on nothing because I like to do things in my way.
+- 📫 Why you want to reach me???
+- .
+- .
+- .
+- .
+- .
+- .
+- .
+- .
+but still here is mail address nikhilshivajiesportes@gmail.com
