@@ -3,12 +3,12 @@
 - 🌱 I’m currently learning JAVA
 - 💞️ I’m looking to collaborate on nothing because I like to do things in my way.
 - 📫 Why do you want to reach me???
--.
--.
--.
--.
--.
--.
--.
--.
+- .
+- .
+- .
+- .
+- .
+- .
+- .
+- .
 but still here is the mail address workwithnikhilawasthi@gmail.com
